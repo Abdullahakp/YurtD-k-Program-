@@ -1,1 +1,0 @@
-# YurtD-k-Program-
